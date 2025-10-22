@@ -12,4 +12,9 @@
 
 ---
 ---
+# ✦
 
+<img width="500" height="500" alt="image" src=https://github.com/BENDR0WNED/BENDR0WNED/blob/main/fking_oldies.png>
+
+__these two are favorite characters <3__
+<sub> (doodle belongs to me) </sub>
