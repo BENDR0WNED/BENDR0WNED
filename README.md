@@ -4,7 +4,7 @@
 
 ![](https://github.com/BENDR0WNED/BENDR0WNED/blob/main/ben.png)
 
-<p> $${\color{#3f5e50}𝒊𝒏𝒇𝒑}$$ </p>
+<p> $${\color{#3f5e50}𝘪𝘯𝘧𝘱 \space × \space 𝘢𝘳𝘰𝘢𝘤𝘦}$$ </p>
 
 <p> $${\color{#3f5e50}@𝙖𝙡𝙢𝙤𝙨𝙩𝙙𝙧𝙤𝙬𝙣𝙚𝙙}$$ </p>
 
