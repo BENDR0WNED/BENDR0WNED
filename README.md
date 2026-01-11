@@ -7,11 +7,11 @@ $${\color{#919598}══════⊹⊱≼≽⊰⊹══════}$$
 
 ![](https://github.com/BENDR0WNED/BENDR0WNED/blob/main/1251da0b6432d71e11729ee08cfe66f6.jpg)
 
-<p> $${\color{#919598}I \space\ barely \space block \space people. \space If \space I \space do \space end \space up \space blocking \space you, \space please \space respect \space my \space boundary \space and \space don't \space force \space any \space interaction.}$$ </p>
+<p> $${\color{#919598}I \space\ barely \space block \space people.}$$ </p>
+  
+<p> $${\color{#919598}If \space I \space do \space end \space up \space blocking \space you, \space please \space respect \space my \space boundary \space and \space don't \space force \space any \space interaction.}$$ </p>
 
 <p> $${\color{#919598}Thank \space you \space for \space understanding.}$$ </p>
-
-$${\color{#919598}══════⊹⊱≼≽⊰⊹══════}$$
 
 <p> $${\color{#919598}infp \space | \space aroace \space | \space he/him}$$ </p>
 
